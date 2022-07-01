@@ -27,4 +27,5 @@ It takes around 20 minutes around 16 km.
 
   
 ### Sierra de Gredos
-The Sierra de Gredos is a mountain range in central Spain that spans the provinces of Ávila, Salamanca, Cáceres, Madrid, and Toledo.
+The Sierra de Gredos is a mountain range in central Spain that spans the provinces of Ávila, Salamanca, Cáceres, Madrid, and Toledo.<BR>
+https://www.spain.info/en/nature/sierra-gredos-regional-park/
