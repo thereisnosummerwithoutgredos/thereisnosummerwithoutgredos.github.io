@@ -21,3 +21,6 @@ Fly to Madrid International Airport (MAD)<BR>
   
 ### How to get by Bus from Madrid Airport to Madrid South Bus Station
 Take the C1 or C10 Bus from Madrid Airport to Méndez Álvaro
+
+### How to get by Uber/Taxi from Madrid Airport to Madrid South Bus Station
+It takes around 20 minutes around 16 km.
