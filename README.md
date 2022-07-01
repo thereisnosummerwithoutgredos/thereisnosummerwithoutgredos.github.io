@@ -8,8 +8,9 @@ Book your House: thereisnosummerwithoutgredos@gmail.com<BR><BR>
 
 Instagram: https://www.instagram.com/thereisnosummerwithoutgredos/ <BR>
 
-### How to get by car from Madrid
+### How to get by car from Madrid Airport
 Put in your GPS the destination address: El Barco de Ávila, 05600, Ávila, Spain  
+It is around 2 hours by car. The total distance from the Madrid Airport 
   
 ### How to get by Bus from Madrid
 Book a bus from Madrid (South Station) to El Barco de Avila in the website: https://www.cevesa.es/ <BR>
