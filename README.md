@@ -1,4 +1,4 @@
-# There is NO Summer without Gredos (No hay veranos sin Gredos)
+# There is no summer without Gredos | No hay veranos sin Gredos
 
 La puerta de Gredos | Gredos door <BR>
 
