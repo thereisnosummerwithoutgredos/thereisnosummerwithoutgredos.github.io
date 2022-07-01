@@ -14,7 +14,10 @@ It is around 2 hours by car. The total distance from the Madrid Airport is 205 K
   
 ### How to get by Bus from Madrid
 Book a bus from Madrid (South Station) to El Barco de Avila in the website: https://www.cevesa.es/ <BR>
-Madrid South Station Address: 84, Méndez Álvaro Street, 28045 Madrid<BR>
+Madrid South Bus Station Address: 84, Méndez Álvaro Street, 28045 Madrid<BR>
   
 ### How to get by airplane
 Fly to Madrid International Airport (MAD)<BR>
+  
+### How to get by Bus from Madrid Airport to Madrid South Bus Station
+Take the C1 or C10 Bus from Madrid Airport to Méndez Álvaro
