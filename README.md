@@ -24,3 +24,7 @@ Take the C1 or C10 Bus from Madrid Airport to Méndez Álvaro
 
 ### How to get by Uber/Taxi from Madrid Airport to Madrid South Bus Station
 It takes around 20 minutes around 16 km.
+
+  
+### Sierra de Gredos
+The Sierra de Gredos is a mountain range in central Spain that spans the provinces of Ávila, Salamanca, Cáceres, Madrid, and Toledo.
