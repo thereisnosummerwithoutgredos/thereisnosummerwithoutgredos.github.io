@@ -38,6 +38,9 @@ https://www.izanhoteles.es/es/hoteles/hotel-izan-puerta-de-gredos <BR>
 Hotel Mirador de Gredos <BR>
 https://www.hotelmiradordegredos.com/hotel/hotel-mirador-gredos/  
 
+### ZONAS DE BAÑO EN EL BARCO DE ÁVILA
+https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=58&Itemid=81
+  
 ### Piscinas Municipales    <BR>
 https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50  <BR>
   
