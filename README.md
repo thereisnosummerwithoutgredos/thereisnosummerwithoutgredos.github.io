@@ -35,7 +35,10 @@ https://www.spain.info/en/nature/sierra-gredos-regional-park/
 HOTEL IZÁN PUERTA DE GREDOS <BR>
 https://www.izanhoteles.es/es/hoteles/hotel-izan-puerta-de-gredos <BR>
 
+### Hotel Mirador de Gredos
+https://www.hotelmiradordegredos.com/hotel/hotel-mirador-gredos/  
 
+  
 https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50
   
   
