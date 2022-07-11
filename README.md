@@ -31,8 +31,8 @@ The Sierra de Gredos is a mountain range in central Spain that spans the provinc
 https://www.spain.info/en/nature/sierra-gredos-regional-park/
 
 ### Hotels in El Barco de Avila
-HOTEL IZÁN PUERTA DE GREDOS
-https://www.izanhoteles.es/es/hoteles/hotel-izan-puerta-de-gredos
+HOTEL IZÁN PUERTA DE GREDOS <BR>
+https://www.izanhoteles.es/es/hoteles/hotel-izan-puerta-de-gredos <BR>
 
 
 https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50
