@@ -1,6 +1,7 @@
 # There is no summer without Gredos | No hay veranos sin Gredos
 
 La puerta de Gredos | Gredos door <BR>
+https://aytobarcodeavila.net/ruta-guiada/<BR>  
 
 El Barco de Ávila, 05600, Ávila, Spain  (Sierra de Gredos)<BR>
 
