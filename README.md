@@ -43,9 +43,13 @@ https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=58&Ite
   
 ### Piscinas Municipales    <BR>
 https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50  <BR>
+
+### Rafting, canyoning, canoes, etc. in the Sierra de Gredos
+Aventur is an Active Tourism company created in 1997, that organizes activities of rafting, canyoning, canoes, etc. in the Sierra de Gredos, the Biosphere Reserve of the Sierras de Bejar and France and the valleys of the Tormes, Jerte and Alagon. Inscribed in the Registry of Active Tourism Companies of Castilla y Leon (Number TA-3705).<BR>  
+https://www.aventur.es/ <BR> 
+https://www.tripadvisor.co.uk/Attraction_Review-g1190227-d11867817-Reviews-Aventur-La_Hoya_Province_of_Salamanca_Castile_and_Leon.html  
   
-  
-### La Covatilla
+### La Covatilla (Ski Station)
 La estación esquí La Covatilla, cuenta con 20 pistas y 19.5 kilómetros esquiables. Ubicada en la Sierra de Béjar, en el municipio de La Hoya.<BR>  
 https://sierradebejar-lacovatilla.com/ <BR>
 https://www.snow-forecast.com/resorts/Sierradebejar/6day/mid  <BR>
