@@ -38,8 +38,8 @@ https://www.izanhoteles.es/es/hoteles/hotel-izan-puerta-de-gredos <BR>
 Hotel Mirador de Gredos <BR>
 https://www.hotelmiradordegredos.com/hotel/hotel-mirador-gredos/  
 
-  
-https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50
+Piscinas Municipales    <BR>
+https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50  <BR>
   
   
 ### La Covatilla
