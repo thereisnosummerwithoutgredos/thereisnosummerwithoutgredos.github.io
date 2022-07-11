@@ -36,3 +36,7 @@ https://www.izanhoteles.es/es/hoteles/hotel-izan-puerta-de-gredos <BR>
 
 
 https://aytobarcodeavila.net/index.php?option=com_content&view=article&id=32&Itemid=50
+  
+  
+### La Covatilla
+La estación esquí La Covatilla, cuenta con 20 pistas y 19.5 kilómetros esquiables. Ubicada en la Sierra de Béjar, en el municipio de La Hoya.  
